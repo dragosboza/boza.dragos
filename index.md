@@ -1,5 +1,3 @@
-My life is a movie, but the only acting I'm doing is acting on impulse.
-
 Contact Info:
 
 Email: bozadragos16@gmail.com
